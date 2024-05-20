@@ -1,1 +1,1 @@
-Prominent boxing promoters include Top Rank, Golden Boy Promotions, Matchroom Boxing, and Premier Boxing Champions (PBC), among others.
+Technical knockouts (TKOs) occur when a referee stops a fight due to one fighter being unable to defend themselves or being deemed unfit to continue.
