@@ -1,1 +1,1 @@
-Mike Tyson, known as "Iron Mike," became the youngest heavyweight champion in history at the age of 20 and was known for his ferocious punching power and aggressive fighting style.
+The modern sport of boxing evolved in England during the 18th century, with the first documented boxing rules established in 1743 by the London Prize Ring rules.
