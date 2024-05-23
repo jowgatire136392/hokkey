@@ -1,1 +1,1 @@
-The modern sport of boxing evolved in England during the 18th century, with the first documented boxing rules established in 1743 by the London Prize Ring rules.
+The modern game of ice hockey developed in Canada in the 19th century, with the first organized indoor hockey game played in Montreal in 1875.
