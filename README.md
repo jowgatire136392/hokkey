@@ -1,1 +1,1 @@
-The modern game of ice hockey developed in Canada in the 19th century, with the first organized indoor hockey game played in Montreal in 1875.
+Boxing gloves were introduced to protect fighters' hands and reduce the risk of injury, but they also serve to increase the duration of fights by absorbing impact and reducing knockouts.
