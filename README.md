@@ -1,1 +1,1 @@
-Muhammad Ali, widely regarded as one of the greatest boxers of all time, won an Olympic gold medal in 1960 and became a three-time world heavyweight champion.
+Rugby union features two main variations: fifteens, played with 15 players per team, and sevens, played with seven players per team on a smaller field.
