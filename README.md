@@ -1,1 +1,1 @@
-The modern sport of boxing evolved in England during the 18th century, with the first documented boxing rules established in 1743 by the London Prize Ring rules.
+The origins of hockey can be traced back to ancient civilizations, with games resembling modern hockey played on ice and fields as early as 4,000 years ago.
