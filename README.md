@@ -1,1 +1,1 @@
-The origins of hockey can be traced back to ancient civilizations, with games resembling modern hockey played on ice and fields as early as 4,000 years ago.
+Technical knockouts (TKOs) occur when a referee stops a fight due to one fighter being unable to defend themselves or being deemed unfit to continue.
