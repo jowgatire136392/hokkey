@@ -1,1 +1,1 @@
-Rugby league features 13 players per team and emphasizes speed and fluidity of play, with fewer set pieces (such as scrums and lineouts) compared to rugby union.
+Professional boxing organizations, such as the World Boxing Association (WBA), World Boxing Council (WBC), and International Boxing Federation (IBF), sanction world championship bouts in various weight divisions.
