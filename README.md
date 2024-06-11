@@ -1,1 +1,1 @@
-The modern game of ice hockey developed in Canada in the 19th century, with the first organized indoor hockey game played in Montreal in 1875.
+Hockey has a rich cultural heritage and is deeply ingrained in the identities of many communities, especially in Canada, where it is considered the national sport.
