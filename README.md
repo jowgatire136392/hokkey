@@ -1,1 +1,1 @@
-The British and Irish Lions is a prestigious rugby union team that tours countries like New Zealand, South Africa, and Australia every four years, playing test matches against the national teams of those countries.
+Modern boxing gloves are padded with foam or horsehair and come in various weights and styles, with heavier gloves providing more protection but also reducing hand speed.
