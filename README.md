@@ -1,1 +1,1 @@
-Wayne Gretzky, known as "The Great One," holds numerous NHL records, including most career goals (894) and most career points (2,857).
+Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
