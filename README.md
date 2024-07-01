@@ -1,1 +1,1 @@
-The modern game of ice hockey developed in Canada in the 19th century, with the first organized indoor hockey game played in Montreal in 1875.
+Olympic boxing features weight classes for men and women, with competitors wearing protective headgear and using a points-based scoring system to determine winners.
