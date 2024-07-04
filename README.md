@@ -1,1 +1,1 @@
-Goaltenders, or goalies, are specialized players who defend their team's goal and are equipped with larger pads, gloves, and blockers to stop shots from opposing players.
+Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
