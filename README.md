@@ -1,1 +1,1 @@
-Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
+Ice hockey made its Olympic debut at the 1920 Summer Olympics in Antwerp, Belgium, and has been a regular Olympic sport since the 1924 Winter Olympics.
