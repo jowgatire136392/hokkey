@@ -1,1 +1,1 @@
-Boxing has been a part of the Olympic Games since the ancient Olympics in Greece, and has been a regular Olympic sport since the 1904 Summer Olympics in St. Louis, Missouri.
+Boxing gloves are often customized with the fighter's name, nickname, or country flag, and are an integral part of a boxer's identity and equipment.
