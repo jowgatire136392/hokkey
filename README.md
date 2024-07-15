@@ -1,1 +1,1 @@
-Hockey players wear protective equipment, including helmets, shoulder pads, elbow pads, gloves, shin guards, and skates, to protect against injuries during play.
+The Marquess of Queensberry rules, established in 1867, introduced significant changes to boxing, including the use of padded gloves, standardized ring dimensions, and rounds.
