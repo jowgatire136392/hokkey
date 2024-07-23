@@ -1,1 +1,1 @@
-Rugby union is the most widely played and recognized form of rugby, with the Rugby World Cup being the premier international tournament for the sport, held every four years since 1987.
+Professional boxing matches are often organized and promoted by boxing promoters, who arrange venues, negotiate contracts, and market the fights to fans and broadcasters.
