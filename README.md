@@ -1,1 +1,1 @@
-Technical knockouts (TKOs) occur when a referee stops a fight due to one fighter being unable to defend themselves or being deemed unfit to continue.
+Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
