@@ -1,1 +1,1 @@
-Boxing dates back to ancient civilizations, with evidence of boxing-like sports found in archaeological discoveries from ancient Egypt, Greece, and Rome.
+Boxing has been a part of the Olympic Games since the ancient Olympics in Greece, and has been a regular Olympic sport since the 1904 Summer Olympics in St. Louis, Missouri.
