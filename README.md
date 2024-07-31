@@ -1,1 +1,1 @@
-New Zealand's national rugby team, the All Blacks, is one of the most successful rugby teams in history, having won the Rugby World Cup three times (1987, 2011, 2015).
+Sugar Ray Robinson, considered by many as the greatest pound-for-pound boxer of all time, held the world welterweight and middleweight titles multiple times during his career.
