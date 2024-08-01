@@ -1,1 +1,1 @@
-Sugar Ray Robinson, considered by many as the greatest pound-for-pound boxer of all time, held the world welterweight and middleweight titles multiple times during his career.
+Wayne Gretzky, known as "The Great One," holds numerous NHL records, including most career goals (894) and most career points (2,857).
